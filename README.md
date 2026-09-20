@@ -1,1 +1,0 @@
-# SHEIKABDULLAHPM.github.io
